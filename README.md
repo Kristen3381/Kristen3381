@@ -1,6 +1,6 @@
 
  💫👋 Hello am Laura Shavia
-I am currently working on developing websites.<br>👀  I am interested in animae<br>I am really facinated by backend development.<br> 🌱 I am currently polishing up on my python scoop.<br>📫 How to reach me shavialaura462@gmail.com.<br>  😄 Pronouns: Her/She.<br>⚡ Fun fact: Many people assume that my first name is shavia yet its Laura😜.<br> 💞️ I’m looking to collaborate on fun projects.
+I am currently working on developing websites and mobile applications<br>👀  I am interested in animae<br>I am really facinated by backend development.<br> 🌱 I am currently polishing up on my python scoop.<br>📫 How to reach me shavialaura462@gmail.com.<br>  😄 Pronouns: Her/She.<br>⚡ Fun fact: Many people assume that my first name is shavia yet its Laura😜.<br> 💞️ I’m looking to collaborate on fun projects.
 
 
 ## 🌐 Socials:
